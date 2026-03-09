@@ -1,1 +1,1 @@
-Confirmamos asistencia Asistencia 04/03 Sergio Puente
+Confirmamos asistencia Asistencia 09/03 Sergio Puente
