@@ -1,1 +1,1 @@
-Confirmamos asistencia  04/05 Sergio Puente
+Confirmamos asistencia  11/05 Sergio Puente
